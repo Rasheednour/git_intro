@@ -1,1 +1,2 @@
 Rasheed Mohammed
+mohamras@oregonstate.edu
